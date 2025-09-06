@@ -1,6 +1,6 @@
 # exampleProject
 2222
-## I M WEN SHIT
+# I am WEN SHIT GOD
 ## zzzzzzzzzzzzzz
 
 #### EDIT HERE
